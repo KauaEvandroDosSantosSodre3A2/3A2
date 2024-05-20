@@ -6,4 +6,4 @@ Sejam todos bem vindos!
 
 e-mail de contato 📩kauaevandrosodre13@gmail.com
 
-Repositório do Aluno Kauã Evandro por Aluno Kauã Evandro está marcado com 
+Repositório do Aluno Kauã Evandro por Aluno Kauã Evandro está marcado com CC0 1.0
