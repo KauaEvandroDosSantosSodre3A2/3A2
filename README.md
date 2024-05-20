@@ -4,4 +4,6 @@ Repositório da turma 3A2
 Sejam todos bem vindos!
 ![](https://tenor.com/bBdoq.gif)
 
-kauaevandrosodre13@gmail.com
+e-mail de contato 📧 kauaevandrosodre13@gmail.com
+
+Repositório do Professor Fabiano Stege por Professor Fabiano Stege está marcado com CC0 1.0
