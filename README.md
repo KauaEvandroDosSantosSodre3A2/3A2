@@ -2,7 +2,7 @@
 Repositório da turma 3A2
 # Este é o Repositório do Aluno "Kauã Evandro dos Santos Sodré"
 Sejam todos bem vindos!
-![](https://tenor.com/pt-BR/view/bem-vindo-gif-22892811)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhljteaFe7Qk-rTOfJ8EaFWztJQpTVJKijCHG2xGwvB0TDXA0FJDbetSMdQsHUyV0jqfACUn0l_MAcA8OdWBG5ollmZlNt4JjdMYcgiy0XYniRAjPt7Nj1yUP7A95v_sc1F4A_0CRHJd2t6/s1600/pop.gif)
 
 e-mail de contato 📩kauaevandrosodre13@gmail.com
 
